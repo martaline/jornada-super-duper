@@ -1,1 +1,0 @@
-# jornada-super-duper
